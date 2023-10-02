@@ -2,7 +2,7 @@
 
 Alan, our storyteller, takes readers on a journey as he begins by introducing the group of friends, each with their distinct personalities and a shared love for nature. 
 The friends have known each other for years, having formed a tight-knit bond through their childhood adventures in the great outdoors. 
-Their annual tradition of escaping the city for a camping trip serves as a way to reconnect with one another and with the natural world.
+alan handsome！！！！！yeah！！！！
 On this particular occasion, they've chosen a remote location deep within the woods, far removed from the noise and distractions of urban life. 
 As they set off on their trek, Alan vividly describes the awe-inspiring beauty of the forest that surrounds them.
 Towering trees stretch their branches high into the sky, forming a natural cathedral of green. 
