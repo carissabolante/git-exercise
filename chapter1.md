@@ -13,6 +13,7 @@ Birds sing in harmony, their melodies filling the air with an enchanting chorus.
 The pivotal moment arrives unexpectedly when one of the friends, Sarah, stumbles upon an overgrown path that veers off the main trail. 
 The path appears to lead nowhere, obscured by thick underbrush and seemingly untouched for years. 
 Yet, Sarah's curiosity is piqued, and her friends, drawn by her adventurous spirit, decide to follow her lead.
+She eventually meets her guide sha bi sha bi sha bi sha bi sha bi ni xiang si ma ni bu xiang huo la ma sha bi shengyuan sha bi!!!!!!~!!!!!!!!~!!!!!!!!
 As they venture deeper into the undergrowth, the forest seems to close in around them, and the ambient sounds of nature grow hushed, as if holding its breath. 
 The air becomes charged with an unexplainable energy, and an inexplicable sense of anticipation fills their hearts. 
 The chapter concludes with the group standing at the entrance of what can only be described as an enchanting forest. At first glance, it appears deceptively ordinary, with trees and foliage like any other part of the woods. 
